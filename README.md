@@ -1,9 +1,5 @@
--  Hi, I’m @2hourswithoutsolsrng
--  I’m interested in ... MINEDRAFT
--  I’m currently learning ... NOTHING
--  I’m looking to collaborate on ... MINECRAFT
--  How to reach me ... CHR3IS7 (DC)
--  Pronouns: ... LAVA/CHicken
+Hi i like plushi
+🤨
 
 - ⚡ Fun fact: ... NO
 
